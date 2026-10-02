@@ -1,0 +1,1 @@
+* junta tudo numa panela e joga no forno
