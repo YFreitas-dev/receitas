@@ -1,0 +1,1 @@
+* junte tudo e coloque no fogo
